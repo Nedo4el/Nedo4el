@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nedo4el
+- 👋 Хи!), I’m @Nedo4el
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning.
 - 💞️ 
